@@ -8,7 +8,7 @@
 
 ### Tenho uma sólida formação acadêmica, incluindo especialização em Gestão de Projetos e cadeia de suprimentos. 
 
-### Além disso, acumulo 3 anos de experiência em engenharia de software, contribuindo para o sucesso de projetos complexos e eficazes. 
+### Além disso, acumulo 2 anos de experiência em engenharia de software, contribuindo para o sucesso de projetos complexos e eficazes. 
 
 ### Sou apaixonado por impulsionar a inovação e aprimorar processos.
 
